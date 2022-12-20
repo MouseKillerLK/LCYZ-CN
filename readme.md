@@ -7,7 +7,7 @@ If you are not a Chinese,this will be useless for you.<br/>
 
 ![QQ频道.jpg](https://raw.githubusercontent.com/MouseKillerLK/LCYZSBBS/main/QQ%E9%A2%91%E9%81%93.jpg)
 
-烂菜叶子.png
+                         烂菜叶子.jpg
 
 去issues里头发帖<br/>
 代码编写中
