@@ -3,7 +3,7 @@
 If you are not a Chinese,this will be useless for you.<br/>
 正在设计<br/>
 
-现在主要活动在这个qq频道里
+频道合作
 
 ![QQ频道.jpg](https://raw.githubusercontent.com/MouseKillerLK/LCYZSBBS/main/QQ%E9%A2%91%E9%81%93.jpg)
 
