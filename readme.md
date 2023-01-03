@@ -17,7 +17,8 @@ If you are not a Chinese,this will be useless for you.<br/>
 
 金金金金金金金金金金金金
 
-https://discord.gg/Kr68JPjPep
+
+我们的休闲场所https://discord.gg/Kr68JPjPep
 
 
 gaka，和这样的虫豸在一起能搞好学习吗
